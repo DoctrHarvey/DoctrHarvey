@@ -18,4 +18,4 @@ Im alright with Kisses, boops C + H, anything
 Do not interact <br>
 Basic DNI <br>
 Harrasing someone for their interests, Grow the fuck up <br> 
-(More of an thin ice?) people who have problems with being covered, Either move or hide the person. <br>
+(More of an thin ice?) people who have problems with being covered, Either move or hide the person <br>
