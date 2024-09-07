@@ -1,16 +1,21 @@
-## Hi there 👋
+<p> 
+This thing will look lazy cause I dont know how to code! <br>
+Harvey | Clocko <br> 
+He | They  <br>
+19<br>
 
-<!--
-**DoctrHarvey/DoctrHarvey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+About me! <br> 
+English is not my first language <br>
+Im a huge social butterfly, Feel free to interact anytime!<br> 
+I tend to get real hyper, If I say something offensive, Please tell me! I dotn want you to be uncomfortable around me :( <br> 
+I barely act my age, bare with me<br>
 
-Here are some ideas to get you started:
+Pony Town info <br>
+I dont play much, but when I do, Usually on 18+ server <br>
+Always seen with @BoyfXML <br>
+Im alright with Kisses, boops C + H, anything
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Do not interact <br>
+Basic DNI <br>
+Harrasing someone for their interests, Grow the fuck up <br> 
+(More of an thin ice?) people who have problems with being covered by text bulbs, Either move or mute the person. <br>
